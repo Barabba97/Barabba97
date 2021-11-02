@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Barabba97
 - 👀 I’m interested in Coding, Cryptos, Restaurants and a lot more things.
+- Shitcoin/Memecoin hater! 
 - 🌱 I’m currently learning all about coding.
 
 <!---
