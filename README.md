@@ -2,6 +2,7 @@
 - 👀 I’m interested in Coding, Cryptos, Restaurants and a lot more things.
 - Shitcoin/Memecoin hater! 
 - 🌱 I’m currently learning all about coding.
+- #AVAX 🔺 
 
 <!---
 Barabba97/Barabba97 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
