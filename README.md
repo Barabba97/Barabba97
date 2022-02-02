@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Barabba97
 - 👀 I’m interested in Coding, Cryptos, Science, Geek Stuff and a lot more things.
 - Shitcoin/Memecoin hater! 
-- 🌱 I’m currently learning React, then i want to get into Web3.
+- 🌱 I’m currently learning React, NodeJS, MongoDB, then i want to get into Web3.
 
 #AVAX 🔺 
 
